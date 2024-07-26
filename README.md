@@ -21,6 +21,5 @@ Cuando Ana y Carlos se levantaron para pedir otra ronda, Herger tomó aire y se 
 
 —Pollo, necesito decirte algo —dijo con voz temblorosa—. Estoy enamorado de ti. Siempre lo he estado.
 
-El silencio se hizo presente por un instante eterno. Pollo, sorprendido, sonrió cálidamente y respondió con sinceridad. Esa noche, lo que empezó como una simple reunión de amigos, se transformó en el comienzo de una hermosa historia de amor.
-
+El silencio se hizo presente por un instante eterno. Pollo, sorprendido, sonrió cálidamente y respondió con sinceridad. Esa noche, lo que empezó como una simple reunión de amigos, se transformó en el comienzo de una hermosa historia de amor
  
