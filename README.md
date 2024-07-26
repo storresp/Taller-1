@@ -1,2 +1,1 @@
-# Taller 1
- Historia
+Titulo: Solos Tu y Yo.
