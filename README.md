@@ -1,1 +1,2 @@
 Titulo: Solos Tu y Yo.
+Luego de la pelea Pollo y Herger decidieron que su amor no podía ser interrumpido por sus metas. Entonces decidieron escapar a un lugar muy muy lejano, donde su amor podía florecer. 
